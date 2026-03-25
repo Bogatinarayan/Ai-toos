@@ -1,1 +1,1 @@
-# Ai-toos for all
+# Ai-toos for all people
